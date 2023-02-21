@@ -1,1 +1,1 @@
-(https://drive.google.com/file/d/1yh65PxjTuFJt4xQPVLUFADwRMFVhpZoZ/view?usp=share_link)
+(https://www.hizliresim.com/k5htvnt)
